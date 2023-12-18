@@ -1,1 +1,11 @@
 # lab6
+![image](https://github.com/MariiaSelivanova/lab6/assets/145068977/d3969fbe-0abe-4394-a51e-f7520fddeabc)
+![image](https://github.com/MariiaSelivanova/lab6/assets/145068977/202b89ee-42d1-4582-bac7-c3bd491d951f)
+![image](https://github.com/MariiaSelivanova/lab6/assets/145068977/6f6363a9-351c-45cf-a408-1ab742afd2fc)
+![image](https://github.com/MariiaSelivanova/lab6/assets/145068977/065954f8-0a14-497e-b655-a3f51ae23b63)
+![image](https://github.com/MariiaSelivanova/lab6/assets/145068977/517562de-7cc4-440e-8b2f-7e539877c509)
+![image](https://github.com/MariiaSelivanova/lab6/assets/145068977/3a95e262-8429-4aa9-8882-e8c350c1a7b1)
+![image](https://github.com/MariiaSelivanova/lab6/assets/145068977/eb0486fd-7c65-4613-8baf-c86c16dcb6c9)
+![image](https://github.com/MariiaSelivanova/lab6/assets/145068977/eed7b774-0cc5-4586-ba27-04edc2afecb8)
+![image](https://github.com/MariiaSelivanova/lab6/assets/145068977/c87036e5-0c96-497d-9f47-44ec660bb192)
+![image](https://github.com/MariiaSelivanova/lab6/assets/145068977/56e3f973-79bb-4521-af42-f6ce08dbc1b1)
